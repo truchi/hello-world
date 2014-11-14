@@ -45,3 +45,6 @@ Content in the first column | Content in the second column
 sup @truchi ?
 
 :+1:
+
+Edit : Yo bitch haf of dis not work
+Edit 2 : cat tho
