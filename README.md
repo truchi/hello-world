@@ -47,3 +47,4 @@ sup @truchi ?
 :+1:
 
 Edit : Yo bitch haf of dis not work
+Edit 2 : cat tho
